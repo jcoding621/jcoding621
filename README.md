@@ -24,3 +24,4 @@ I'm not a fan of hiding who you are for the approval of superficial and judgment
 I'll probably edit this later to have some cool markdown stuff and GIFs and stuff. But for now, this is all you get.
 
 See ya.
+ 
