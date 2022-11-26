@@ -8,7 +8,7 @@ Well, I don't really know either.
 
 Apparently this is some sort of introduction file for my profile.
 
-So, uh, hi. I'm [REDACTED]. I go to [REDACTED] School, and I'm 14 years old. 
+So, uh, hi. I'm [REDACTED]. I go to [REDACTED] School, and I'm 15 years old. 
 
 Below is some stuff about me I got inspired to write by Beter.
 
